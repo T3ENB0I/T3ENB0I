@@ -1,7 +1,7 @@
 ..
 
 
-![](https://komarev.com/ghpvc/?username=wismidarx&label=࣪☾&color=f1d78f&style=flat)
+![](https://komarev.com/ghpvc/?username=wismidarx&label=಄&color=f1d78f&style=flat)
 
 
 
